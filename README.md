@@ -1,6 +1,6 @@
 ## Welcome to my site. 
 
-This is my personal site and (share small portion to my little brother), where I can sing, dance, sell and share all my experiences. 
+This is my personal site (and share small portion to my little brother. :)), where I can sing, dance, sell and share all my experiences. 
 
 I am Grade 3 student.. I am freedom thinker. I am fascinated about everything in this world..My Dad gives me all the freedom to me to think and act. But I seldom use it in right way and often I misuses it.. :) 
 
